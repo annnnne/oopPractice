@@ -1,5 +1,2 @@
 # oopPractice
-hi did this work again?????
-h
-
-HI HELLO DID THIS WORK?????
+this place sucks :(((((((((((((git 
